@@ -1,5 +1,5 @@
 # INSTAGRAM-V2
-Crack Instagram - V2
+Checker Instagram - V2
 
 *Created *By *xXx_not_found_xXx
 
